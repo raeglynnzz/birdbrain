@@ -1,7 +1,7 @@
 # birdbrain
-.     ,       '     raeglyn  -   shedletsky   !    '.
+.     ,       '     REAAADADADAD,, read   !    '.
 
-       #   .      '    ,     fictionkin  of  four  , !! 
+       #   .      '    ,  shedletsky ,, ' raeglyn '    fictionkin  of  four  , !! 
 
        WE FUCKING HATE FORSAKEN DEVS  !  SEPERATE ART FROM ARTIST ,, 
        
